@@ -1,66 +1,54 @@
 ```lyrics
-Is this the real life?
-Is this just fantasy?
-Caught in a landside,
-No escape from reality
-Open your eyes,
-Look up to the skies and see,
-I'm just a poor boy, I need no sympathy,
-Because I'm easy come, easy go,
-Little high, little low,
-Any way the wind blows doesn't really matter to
-Me, to me  
+Do you know what's worth fighting for
+When it's not worth dying for?
+Does it take your breath away
+And you feel yourself suffocating?
+Does the pain weigh out the pride?
+And you look for a place to hide?
+Did someone break your heart inside?
+You're in ruins
 
-Mamaaa,
-Just killed a man,
-Put a gun against his head, pulled my trigger,
-Now he's dead
-Mamaaa, life had just begun,
-But now I've gone and thrown it all away
-Mama, oooh,
-Didn't mean to make you cry,
-If I'm not back again this time tomorrow,
-Carry on, carry on as if nothing really matters  
+One, twenty-one guns
+Lay down your arms, give up the fight
+One, twenty-one guns
+Throw up your arms into the sky
+You and I
 
-Too late, my time has come,
-Sends shivers down my spine, body's aching all
-The time
-Goodbye, everybody, I've got to go,
-Gotta leave you all behind and face the truth
-Mama, oooh
-I don't want to die,
-I sometimes wish I'd never been born at all.  
+When you're at the end of the road
+And you lost all sense of control
+And your thoughts have taken their toll
+When your mind breaks the spirit of your soul
+Your faith walks on broken glass
+And the hangover doesn't pass
+Nothing's ever built to last
+You're in ruins
 
-I see a little silhouetto of a man,
-Scaramouch, Scaramouch, will you do the Fandango!  
+One, 21 guns
+Lay down your arms
+Give up the fight
+One, 21 guns
+Throw up your arms into the sky
+You and I
 
-Thunderbolts and lightning, very, very frightening me
-Galileo, Galileo
-Galileo, Galileo
-Galileo, Figaro - magnificoo  
+Did you try to live on your own
+When you burned down the house and home
+Did you stand too close to the fire?
+Like a liar looking for forgiveness from a stone
 
-I'm just a poor boy nobody loves me
-He's just a poor boy from a poor family,
-Spare him his life from this monstrosity
-Easy come, easy go, will you let me go
-Bismillah! No, we will not let you go
-(Let him go!) Bismillah! We will not let you go
-(Let him go!) Bismillah! We will not let you go
-(Let me go) Will not let you go
-(Let me go)(Never) Never let you go
-(Let me go) (Never) let you go (Let me go) Ah
-No, no, no, no, no, no, no
-Oh mama mia, mama mia, mama mia, let me go
-Beelzebub has a devil put aside for me, for me,
-For meee  
+When it's time to live and let die
+And you can't get another try
+Something inside this heart has died
+You're in ruins
 
-So you think you can stop me and spit in my eye
-So you think you can love me and leave me to die
-Oh, baby, can't do this to me, baby,
-Just gotta get out, just gotta get right outta here  
-
-Nothing really matters, Anyone can see,
-Nothing really matters,
-Nothing really matters to me
-Any way the wind blows...
+One, twenty-one guns
+Lay down your arms
+Give up the fight
+One, twenty-one guns
+Throw up your arms into the sky
+One, twenty-one guns
+Lay down your arms
+Give up the fight
+One, twenty-one guns
+Throw up your arms into the sky
+You and I
 ```
